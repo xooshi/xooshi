@@ -9,5 +9,5 @@
 <p>$\color{#70B7C3}{\text{( ˶°ㅁ°) !! I make kys/kms jokes + I'm a minor ok. }}$</p>
 <p>$\color{#70B7C3}{\text{ · · ─────────────────────────────────────────────── · · }}$
 <p>$\color{#70B7C3}{\text{‹𝟹 Kevvy (mwa), Mooni, Lana (biggest bully), Yuna and Eternity (mga baliw),}}$
-<p>$\color{#70B7C3}{\text{Ness (unc), Svar, Nyx, Ryu, Cas, Sen (IDOLL), Kaede,}}$
-<p>$\color{#70B7C3}{\text{Zuu and Maki !  aww (˶˃ - ˂˶) }}$
+<p>$\color{#70B7C3}{\text{Ness (unc), Svar, Nyx, Ryu, Cas, Sen (IDOLL), Kaede, Zuu}}$
+<p>$\color{#70B7C3}{\text{and Maki !  aww (˶˃ - ˂˶) loveuguys}}$
