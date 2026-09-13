@@ -6,4 +6,4 @@
 <p>$\color{#70B7C3}{\text{ ⋮ ⌗ ┆C+H is highly}}$ $\color{#85C8D2}{\text{encouraged!}}$
 <p>$\color{#70B7C3}{\text{ᛝ: I'm quite shy and awkward esp when I haven't known u long enough :c}}$ <p>$\color{#70B7C3}{\text{but I do become more talkative and comfortable overtime!!}}$ 
 <p>$\color{#70B7C3}{\text{( ˶°ㅁ°) !! I make kys/kms jokes + I'm a minor ok. }}$</p>
-
+still a wip dont throw tomatoes at me
