@@ -11,4 +11,5 @@
 <p>$\color{#70B7C3}{\text{‹𝟹 Kevvy (mwa), Mooni, Lana (biggest bully), Yuna and Eternity (mga baliw),}}$
 <p>$\color{#70B7C3}{\text{Ness (unc), Svar, Nyx, Ryu, Cas, Sen (IDOLL), Kaede, Zuu}}$
 <p>$\color{#70B7C3}{\text{and Maki !  aww (˶˃ - ˂˶) loveuguys}}$
-<p align="center"> <font size="5">$\color{#70B7C3}{\text{(„• ֊ •„)}}$
+<p>$\color{#70B7C3}{\text{ · · ─────────────────────────────────────────────── · · }}$  
+<p align="center"> <font size="5">$\color{#70B7C3}{\text{" ᴏʜ ᴅᴀɪꜱʏ, ɪᴛ'ꜱ ᴍʏ ʜᴀᴘᴘɪɴᴇꜱꜱ ᴛᴏ ʀᴜɴ ɪɴᴛᴏ ʏᴏᴜ "}}$
