@@ -7,5 +7,6 @@
 <p>$\color{#70B7C3}{\text{ ⋮ ⌗ ┆C+H is highly}}$ $\color{#85C8D2}{\text{encouraged!}}$
 <p>$\color{#70B7C3}{\text{ᛝ: I'm quite shy and awkward esp when I haven't known u long enough :c}}$ <p>$\color{#70B7C3}{\text{but I do become more talkative and comfortable overtime!!}}$ 
 <p>$\color{#70B7C3}{\text{( ˶°ㅁ°) !! I make kys/kms jokes + I'm a minor ok. }}$</p>
-<p>$\color{#70B7C3}{\text{ ────────────────────────────────────────────────}}$
-<p>$\color{#70B7C3}{\text{‹𝟹 Kevvy, Mooni, Lana (biggest bully), Yuna, Eternity, Ness, Kazu, Nyx, Svar, Zuu}}$
+<p>$\color{#70B7C3}{\text{ · · ─────────────────────────────────────────────── · · }}$
+<p>$\color{#70B7C3}{\text{‹𝟹 Kevvy, Mooni, Lana (biggest bully), Yuna and Eternity (mga baliw), Ness, Kazu, Nyx, Svar,}}$
+<p>$\color{#70B7C3}{\text{Zuu, Ryu, Cas, Sen (IDOLL) Maki ! aww (˶˃ - ˂˶)}}$
