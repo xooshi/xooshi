@@ -12,4 +12,4 @@
 <p>$\color{#70B7C3}{\text{Ness (unc), Svar, Nyx, Ryu, Cas, Sen (IDOLL), Kaede, Zuu}}$
 <p>$\color{#70B7C3}{\text{and Maki !  aww (˶˃ - ˂˶) loveuguys}}$
 <p align="center"> <font size="5">$\color{#70B7C3}{\text{꒰ · · ────────────────── ꒰ঌ·✦·໒꒱ ────────────────── · · ꒱}}$
-<p align="center"> <font size="5">$\color{#70B7C3}{\text{" ᥴᥲᥒ ᥕᥱ ȷᥙs𝗍 𝗍һr᥆ᥕ ᥲᥣᥣ ᥆𝖿 mᥡ ⍴іᥱᥴᥱs? "}}$
+<p align="center"> <font size="5">$\color{#70B7C3}{\text{" ᴄᴀɴ ᴡᴇ ᴊᴜꜱᴛ ᴛʜʀᴏᴡ ᴀʟʟ ᴏꜰ ᴍʏ ᴘɪᴇᴄᴇꜱ?  "}}$
