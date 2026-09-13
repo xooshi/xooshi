@@ -8,5 +8,5 @@
 <p>$\color{#70B7C3}{\text{( ˶°ㅁ°) !! I make kys/kms jokes + I'm a minor ok. }}$</p>
 </div>
 <br>
-<img src="https://github.com/xooshi/xooshi/blob/968f8ee5cd691fa01be40caeb1bbb811b570d684/Untitled69_20260913085541.webp"width="100">
+<img src="https://github.com/xooshi/xooshi/blob/968f8ee5cd691fa01be40caeb1bbb811b570d684/Untitled69_20260913085541.webp"width="50">
 </div>
