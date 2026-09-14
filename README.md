@@ -9,7 +9,9 @@
 <p>$\color{#70B7C3}{\text{( ˶°ㅁ°) !! I occasionally make kys/kms jokes + I'm a minor ok. }}$</p>
 <p align="center"> <font size="5">$\color{#70B7C3}{\text{꒰ · · ───────────────── ᴏᴏᴍꜰɪᴇꜱ! ─────────────────· · ꒱}}$
 <p align="center"> <font size="5">$\color{#70B7C3}{\text{‹𝟹 Kevvy (mwa), Mooni, Lana (biggest bully), Yuna and Eternity (mga baliw),}}$
-<p align="center"> <font size="5">$\color{#70B7C3}{\text{Ness (unc), Svar, Nyx, Ryu, Cas, Sen (IDOLL), Kaede, Zuu}}$
-<p align="center"> <font size="5">$\color{#70B7C3}{\text{and Maki !  aww (˶˃ - ˂˶) loveuguys}}$
+<p align="center"> <font size="5">$\color{#70B7C3}{\text{Ness (unc), Svar, Nyx, Ryu, Cas, Sen (IDOLL), Kaede, Lynx,}}$
+<p align="center"> <font size="5">$\color{#70B7C3}{\text{Lorei, Zuu and Maki !  aww (˶˃ - ˂˶) loveuguys}}$
 <p align="center"> <font size="5">$\color{#70B7C3}{\text{꒰ · · ───────────────── ꒰ঌ·✦·໒꒱ ───────────────── · · ꒱}}$
 <p align="center"> <font size="5">$\color{#70B7C3}{\text{" ᴄᴀɴ ᴡᴇ ᴊᴜꜱᴛ ᴛʜʀᴏᴡ ᴀʟʟ ᴏꜰ ᴍʏ ᴘɪᴇᴄᴇꜱ?  "}}$
+
+
