@@ -1,4 +1,4 @@
-![image alt](https://github.com/xooshi/xooshi/blob/d14ca7e5316c2a8eec842ba3d6eaa9d0bce94e1f/Untitled72_20260913091851.webp)
+![image alt](https://github.com/xooshi/xooshi/blob/92ad29d0cbcef1d2fa6b6de86880c406996adb81/Untitled85_20260922192930.png)
 <p align="center"> <font size="5">$\color{#70B7C3}{\text{ ꒰ · · ──────── · ·   }}$ $\color{#70B7C3}{\text{ ⤷ ゛"ᴛʜᴇ ᴡᴏʀʟᴅ ɪꜱ ᴍʏ ʙᴜꜰꜰᴇᴛ !" ˎˊ˗ }}$ $\color{#70B7C3}{\text{  · · ──────── · · ꒱   }}$</font> </p>
 <img src="https://github.com/xooshi/xooshi/blob/968f8ee5cd691fa01be40caeb1bbb811b570d684/Untitled69_20260913085541.webp"width="350"align="left">
 <p>$\color{#70B7C3}{\text{╰┈ · · ─ · ⌞}}$ $\color{#85C8D2}{\text{Welcome!}}$ $\color{#70B7C3}{\text{⌝ · ─ · · ⟢}}$ 
