@@ -1,7 +1,7 @@
 CHANGING THIS OK
 ![image alt](https://github.com/xooshi/xooshi/blob/92ad29d0cbcef1d2fa6b6de86880c406996adb81/Untitled85_20260922192930.png)
 <p align="center"> <font size="5">$\color{#70B7C3}{\text{ ꒰ · · ──────── · ·   }}$ $\color{#70B7C3}{\text{ ⤷ ゛"ᴛʜᴇ ᴡᴏʀʟᴅ ɪꜱ ᴍʏ ʙᴜꜰꜰᴇᴛ !" ˎˊ˗ }}$ $\color{#70B7C3}{\text{  · · ──────── · · ꒱   }}$</font> </p>
-<img src="https://github.com/xooshi/xooshi/blob/968f8ee5cd691fa01be40caeb1bbb811b570d684/Untitled69_20260913085541.webp"width="350"align="left">
+<img src="https://github.com/xooshi/xooshi/blob/abafacc67abe312dd3e729b937de1de61554fc42/Untitled109_20261010191426.webp"width="350"align="left">
 <p>$\color{#70B7C3}{\text{╰┈ · · ─ · ⌞}}$ $\color{#85C8D2}{\text{Welcome!}}$ $\color{#70B7C3}{\text{⌝ · ─ · · ⟢}}$ 
 <p>$\color{#70B7C3}{\text{ • . Hi ! I'm}}$ $\color{#85C8D2}{\text{Xyl/Xylie !}}$ $\color{#70B7C3}{\text{She/her}}$ $\color{#70B7C3}{\text{Bisexual, Eng/Tagalog/Bisaya <3}}$
 <p>$\color{#70B7C3}{\text{ ── .✦ Profile looks better on PC ok..}}$
@@ -14,5 +14,3 @@ CHANGING THIS OK
 <p align="center"> <font size="5">$\color{#70B7C3}{\text{Mori, Zuu and Maki !  aww (˶˃ - ˂˶) loveuguys}}$
 <p align="center"> <font size="5">$\color{#70B7C3}{\text{꒰ · · ───────────────── ꒰ঌ·✦·໒꒱ ───────────────── · · ꒱}}$
 <p align="center"> <font size="5">$\color{#70B7C3}{\text{" ᴄᴀɴ ᴡᴇ ᴊᴜꜱᴛ ᴛʜʀᴏᴡ ᴀʟʟ ᴏꜰ ᴍʏ ᴘɪᴇᴄᴇꜱ?  "}}$
-
-
