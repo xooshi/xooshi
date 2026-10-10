@@ -1,4 +1,3 @@
-CHANGING THIS OK
 ![image](https://github.com/xooshi/xooshi/blob/dadcbed816e6cfec32a73853b7702b37ce4a8fed/Untitled107_20261010195516.png) 
 <p align="center"> <font size="5">$\color{#FDB3CF}{\text{ ꒰ · · ──────── · ·   }}$ $\color{#FF9DC1}{\text{ ⤷ ゛"ᴛʜᴇ ᴡᴏʀʟᴅ ɪꜱ ᴍʏ ʙᴜꜰꜰᴇᴛ !" ˎˊ˗ }}$ $\color{#FDB3CF}{\text{  · · ──────── · · ꒱   }}$</font> </p>
 <img src="https://github.com/xooshi/xooshi/blob/abafacc67abe312dd3e729b937de1de61554fc42/Untitled109_20261010191426.webp"width="350"align="left">
