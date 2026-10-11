@@ -2,4 +2,3 @@
 <p align="center"><img src="https://github.com/xooshi/xooshi/blob/abafacc67abe312dd3e729b937de1de61554fc42/Untitled109_20261010191426.webp"width="750"></p>
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Libre+Caslon+Condensed&size=25&letterSpacing=0.2+rem&duration=4000&pause=1000&color=FDBBD4&center=true&vCenter=true&width=500&lines='Cause+we+could+stay+at+home+and+watch+the+sunset;But+I+can't+help+from+asking%2C+%22Are+you+bored+yet%3F%22" alt="Typing SVG" /></a>
 <p>$\color{#F3A2C0}{\text{hi guys still a wip wip wip wip}}$
-<p>$\color{#F3A2C0}{\text{hi guys still a wip wip wip wip}}$
