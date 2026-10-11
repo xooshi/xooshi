@@ -1,4 +1,4 @@
 <p align=center"><img src="https://github.com/xooshi/xooshi/blob/dadcbed816e6cfec32a73853b7702b37ce4a8fed/Untitled107_20261010195516.png"width="100%"></p>
 <p align="center"><img src="https://github.com/xooshi/xooshi/blob/abafacc67abe312dd3e729b937de1de61554fc42/Untitled109_20261010191426.webp"width="750"></p>
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Libre+Caslon+Condensed&size=25&letterSpacing=0.2+rem&duration=4000&pause=1000&color=FDBBD4&center=true&vCenter=true&width=500&lines='Cause+we+could+stay+at+home+and+watch+the+sunset;But+I+can't+help+from+asking%2C+%22Are+you+bored+yet%3F%22" alt="Typing SVG" /></a>
-<p align="center"><img src="https://github.com/xooshi/xooshi/blob/be0ff4b9620e3b2e61a2d27a2da005a511581972/Untitled106_20261011181725.webp"width="900"></p>
+<p align="center"><img src="https://github.com/xooshi/xooshi/blob/be0ff4b9620e3b2e61a2d27a2da005a511581972/Untitled106_20261011181725.webp"width="880"></p>
