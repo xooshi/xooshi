@@ -1,5 +1,6 @@
 <p align=center"><img src="https://github.com/xooshi/xooshi/blob/dadcbed816e6cfec32a73853b7702b37ce4a8fed/Untitled107_20261010195516.png"width="100%"></p>
-<p align="center"><img src="https://komarev.com/ghpvc/?username=xooshi&style=for-the-badge&color=FDBDD4"/>
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=xooshi&label=♡&color=FDBDD4&style=plastic" /></p>
 <p align="center"><img src="https://github.com/xooshi/xooshi/blob/abafacc67abe312dd3e729b937de1de61554fc42/Untitled109_20261010191426.webp"width="750"></p>
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Libre+Caslon+Condensed&size=25&letterSpacing=0.2+rem&duration=4000&pause=1000&color=FDBBD4&center=true&vCenter=true&width=500&lines='Cause+we+could+stay+at+home+and+watch+the+sunset;But+I+can't+help+from+asking%2C+%22Are+you+bored+yet%3F%22" alt="Typing SVG" /></a>
 <p align="center">$\color{#FEA4C4}{\text{⋮ ⌗ ┆}}$ ׁ𝙃𝙖𝙞𝙞! 𝘑𝘶𝘴𝘵 𝘤𝘢𝘭𝘭 𝘮𝘦 $\color{#FDBDD4}{\text{𝘟𝘺𝘭/𝘟𝘺𝘭𝘪𝘦! 𝘚𝘩𝘦/𝘩𝘦𝘳, 𝘍𝘪𝘭𝘪𝘱𝘪𝘯𝘰 𝘢𝘯𝘥 𝘉𝘪𝘴𝘦𝘹𝘶𝘢𝘭 <𝟑}}$ 𝘐'𝘮 𝘧𝘪𝘯𝘦 𝘸𝘪𝘵𝘩 𝘢𝘯𝘺 𝘢𝘨𝘦 𝘨𝘳𝘰𝘶𝘱 𝘫𝘶𝘴𝘵 𝘳𝘦𝘴𝘱𝘦𝘤𝘵 𝘮𝘺 𝘣𝘰𝘶𝘯𝘥𝘢𝘳𝘪𝘦𝘴 𝘢𝘯𝘥 𝘥𝘰𝘯'𝘵 𝘣𝘦 𝘸𝘦𝘪𝘳𝘥 𝘰𝘬? ˎˊ˗</p>
