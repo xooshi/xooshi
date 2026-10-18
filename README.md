@@ -10,3 +10,4 @@
 $\color{#FEA4C4}{\text{𝙈𝙮 𝙩𝙝𝙧𝙚𝙚 <3}}$ 𝘙𝘩𝘪𝘢𝘯𝘯𝘢, 𝘓𝘦𝘹𝘪, 𝘢𝘯𝘥 𝘝𝘪𝘯𝘤𝘦𝘯𝘵!</details>
 <p align="center"><a href="https://xooshi.atabook.org/"><img src="https://github.com/xooshi/xooshi/blob/5a9c1791ca912ea796be4fc1e6154a6090176c24/Untitled109_20261010191403.webp" width="300"></a>
   <a href="https://xoooshi.carrd.co/"><img src="https://github.com/xooshi/xooshi/blob/ec93eab42c9d0536edfb3dfd9220238104e44504/Untitled109_20261010191331.webp" width="300"></a></p>
+i hate lana guys can u tell
