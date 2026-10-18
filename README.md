@@ -10,4 +10,3 @@
 $\color{#FEA4C4}{\text{𝙈𝙮 𝙩𝙝𝙧𝙚𝙚 <3}}$ 𝘙𝘩𝘪𝘢𝘯𝘯𝘢, 𝘓𝘦𝘹𝘪, 𝘢𝘯𝘥 𝘝𝘪𝘯𝘤𝘦𝘯𝘵!</details>
 <p align="center"><a href="https://xooshi.atabook.org/"><img src="https://github.com/xooshi/xooshi/blob/5a9c1791ca912ea796be4fc1e6154a6090176c24/Untitled109_20261010191403.webp" width="300"></a>
   <a href="https://xoooshi.carrd.co/"><img src="https://github.com/xooshi/xooshi/blob/ec93eab42c9d0536edfb3dfd9220238104e44504/Untitled109_20261010191331.webp" width="300"></a></p>
-<div class="tenor-gif-embed" data-postid="1648862458086756614" data-share-method="host" data-aspect-ratio="1.1267" data-width="100%"><a href="https://tenor.com/view/hsr-evanescia-honkai-star-rail-planarcadia-evanescia-hsr-gif-1648862458086756614">Hsr Evanescia GIF</a>from <a href="https://tenor.com/search/hsr-gifs">Hsr GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
