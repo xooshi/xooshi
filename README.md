@@ -11,4 +11,4 @@ $\color{#FEA4C4}{\text{𝙈𝙮 𝙩𝙝𝙧𝙚𝙚 <3}}$ 𝘙𝘩𝘪𝘢𝘯�
 <p align="center"><a href="https://xooshi.atabook.org/"><img src="https://github.com/xooshi/xooshi/blob/5a9c1791ca912ea796be4fc1e6154a6090176c24/Untitled109_20261010191403.webp" width="300"></a>
   <a href="https://xoooshi.carrd.co/"><img src="https://github.com/xooshi/xooshi/blob/ec93eab42c9d0536edfb3dfd9220238104e44504/Untitled109_20261010191331.webp" width="300"></a></p>
 <img src="https://github.com/xooshi/xooshi/blob/e179a9e1b7b556d5aed47b7f386a4086a99f562f/Screenshot_20261016_113500_town_pony_game_MainActivity_edit_156905652135820.jpg"width=100"></a></p>
-<img src="https://github.com/xooshi/xooshi/blob/ccf55a0ecc6ee04355f1f2f2a33261d59eaf0d63/Screenshot_20260907_124955_town_pony_game_MainActivity_edit_157058410651335.jpg"width="100%"
+<img src="https://github.com/xooshi/xooshi/blob/ccf55a0ecc6ee04355f1f2f2a33261d59eaf0d63/Screenshot_20260907_124955_town_pony_game_MainActivity_edit_157058410651335.jpg"width="100%"></p>
